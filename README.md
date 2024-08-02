@@ -1,3 +1,4 @@
 ## Hi there 👋
 
-![giphy](https://github.com/user-attachments/assets/d0b79d9c-1ddd-4e15-8856-e0d2ffe7e3d8)
+
+![giphy](https://github.com/user-attachments/assets/502f8ce8-f9c2-43d8-9f65-d5f44f447f16)
